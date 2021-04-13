@@ -1,3 +1,3 @@
-# who-is-the-one-true-can
+# who-is-the-one-true-khan
 
 > There can only be one!
